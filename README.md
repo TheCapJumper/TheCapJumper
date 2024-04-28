@@ -2,7 +2,7 @@
 - 👀 I’m interested in cybersecurity
 - 🌱 I’m currently learning cybersecurity in highschool
 - 📫 You can reach me with my multiple email addresses : leon.rfd@proton.me, leon.rfd@gmail.com and leon.rfd@outlook.com
-- 😄 Pronouns: he/his
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm french
 
 <!---
